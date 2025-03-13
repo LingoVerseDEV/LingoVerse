@@ -71,7 +71,3 @@ LingoVerse aspire à devenir la **plateforme de référence pour l'apprentissage
 
 ### **Rejoignez la Révolution Linguistique**
 LingoVerse est bien plus qu'une plateforme d'apprentissage des langues. C'est un mouvement mondial pour un monde sans barrières linguistiques, où chaque mot appris est un pas vers une meilleure compréhension mutuelle. Rejoignez-nous et faites partie de cette révolution !
-
----
-
-Cette description détaillée met en avant la vision, les objectifs et les fonctionnalités de LingoVerse, tout en soulignant son impact potentiel sur la société. Si vous souhaitez ajouter ou modifier des éléments, n'hésitez pas à me le dire ! 😊
